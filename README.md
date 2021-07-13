@@ -36,4 +36,4 @@ Agradecimientos al resto de la comunidad de TraduSquare por su apoyo.
 * [Hypertraducciones](https://hypertraducciones.blogspot.com/)
 * [Ficha del proyecto en Hypertraducciones](https://hypertraducciones.blogspot.com/p/hyperdimension-neptunia-u.html) (¡Dejar un comentario bonito no cuesta nada!)
 * [Ficha del proyecto en TraduSquare](https://tradusquare.es/ficha.php?neptunia-u)
-* [Guía de Steam](https://steamcommunity.com/sharedfiles/filedetails/?id=2281932521) (¡Dejar un me gusta y un comentario bonito no cuesta nada!)
+* [Guía de Steam](https://steamcommunity.com/sharedfiles/filedetails/?id=2513573195) (¡Dejar un me gusta y un comentario bonito no cuesta nada!)
